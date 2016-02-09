@@ -1,3 +1,0 @@
-# hello-world
-
-IMMA FIRIN MAH README!!! COMPLY OR DIE
